@@ -1,0 +1,2 @@
+# awal
+Coba Sedang Belajar
